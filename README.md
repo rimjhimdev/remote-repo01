@@ -2,4 +2,4 @@
 Creating this file for practising and learning purpose.
 Rimjhim Rajani
 Bhopal
-madhya pradesh
+Madhya Pradesh
